@@ -1,0 +1,1 @@
+Red velvet cake is a cake with either a dark red, bright red or red-brown color. It's traditionally prepared as a layer cake topped with cream cheese or cooked roux icing. It is made with cocoa powder, vinegar and buttermilk. The chemical reaction between these ingredients help give the cake a deep maroon color that is often enhanced by extra food coloring.
